@@ -9,7 +9,7 @@
 🚀 Loves designing intuitive and high-performance web applications\
 🎨 Always giving my best to perfect the user experience by bridging the gap between mockups and the final rendering\
 📱 Passionate about integrating and maintaining design systems\
-🧩 Versatility thanks to previous full-stack and back-end development experiences\
+🧩 Versatility thanks to previous full-stack and back-end development experiences
 
 ### And also
 ☕ Coffee lover\
