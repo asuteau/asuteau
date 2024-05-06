@@ -13,6 +13,7 @@
 
 ### And also
 ☕ Coffee lover\
+🌱 Plant addict\
 💿 Passionate about music discovery and vinyl collecting\
 🎮 Moderator on 2 Twitch channels (400+ average viewers, 2k peak viewers)
 
